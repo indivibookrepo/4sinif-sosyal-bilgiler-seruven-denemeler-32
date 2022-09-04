@@ -1,0 +1,1 @@
+# 4sinif-sosyal-bilgiler-seruven-denemeler-32
